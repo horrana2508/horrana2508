@@ -8,8 +8,8 @@ Meu nome é horrana xavier de abreu
 
 ### Você pode entrar em contato comigo :mailbox
 
-paludettomarcelo@gmail.com
+horrana.abreu@gmail.com
 
-@marcelopaludetto
+@horrana.abreu
 
 ![descrição do GIF](link GIF do Tenor)
